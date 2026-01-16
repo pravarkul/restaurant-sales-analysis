@@ -73,3 +73,7 @@ ________________________________________
 •	Study top manager practices & train lower performers
 •	Promote underperforming cities through localized campaigns
 
+<img width="1297" height="733" alt="image" src="https://github.com/user-attachments/assets/b66c6e4d-aa1d-4e0b-a8ac-70b0ad4e22d8" />
+<img width="1296" height="726" alt="image" src="https://github.com/user-attachments/assets/c106e53b-6748-423e-82e6-ead56a598d45" />
+
+
